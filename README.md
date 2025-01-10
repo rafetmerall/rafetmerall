@@ -55,7 +55,7 @@ I'm a passionate **Full Stack Developer** with a strong focus on creating effici
 ---
 
 ## 📫 How to reach me
-- Email: **rafet.meral@example.com** *(replace with your actual email)*  
+- Email: **rafet.meral.1628@gmail.com**
 
 ---
 
